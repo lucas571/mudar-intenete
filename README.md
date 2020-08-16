@@ -1,2 +1,0 @@
-# mudar-intenete
-mudar intenete
